@@ -3,5 +3,4 @@
  ( o.o )
  >  ^  <
 
-inquiries
 samueladuval@gmail.com
